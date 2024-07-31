@@ -1,1 +1,1 @@
-# criando-uma-miss-o-sobre-IA
+# criando-uma-missão-sobre-IA
